@@ -6,3 +6,5 @@ Hit me up on discord if you want more info!
 
 
 @redrose0958
+
+sry I gave up on this a while ago.
